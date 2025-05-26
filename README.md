@@ -1,6 +1,6 @@
-## Hello and Welcome!
+# Hello and Welcome!
 
-# About Me
+### About Me
 
 <!--
 **bitwise-Coder64/bitwise-Coder64** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
