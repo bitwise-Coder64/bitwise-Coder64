@@ -12,7 +12,7 @@ Here are some ideas to get you started:
 - 👯 <b>I’m looking to collaborate on:</b> Experimental condensed matter or atomic,molecular,optical physics -- which is outisde of GitHub or coding for that matter.
 - 🤔 <b>I’m looking for help with:</b> Nothing at the moment.
 - 💬 <b>Ask me about:</b> Who I am or if you are looking to chat!
-- 📫 <b>How to reach me:</b> I mean you already are here with my LinkedIn URL site and email.
+- 📫 <b>How to reach me:</b> I mean you already are here, alongside my LinkedIn URL site link.
 - 😄 <b>Pronouns:</b> he/him/his
 - ⚡ <b>Fun fact:</b> ¯\\_(ツ)_/¯
 - 👍 <b>Interests:</b> Physics, science-fiction, alternative rock (LINKIN PARK is my favorite band), heavy metal, walks/ hiking, exploring outside, PlayStation, horror, movies, cooking, cleaning.
