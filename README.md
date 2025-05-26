@@ -14,6 +14,6 @@ Here are some ideas to get you started:
 - 💬 <b>Ask me about:</b> Who I am or if you are looking to chat!
 - 📫 <b>How to reach me:</b> I mean you already are here with my LinkedIn URL site and email.
 - 😄 <b>Pronouns:</b> he/him/his
-- ⚡ <b>Fun fact:</b> ¯\_(ツ)_/¯
+- ⚡ <b>Fun fact:</b> ¯\\_(ツ)_/¯
 - 👍 <b>Interests:</b> Physics, science-fiction, alternative rock (LINKIN PARK is my favorite band), heavy metal, walks/ hiking, exploring outside, PlayStation, horror, movies, cooking, cleaning.
 
